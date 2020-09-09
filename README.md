@@ -13,7 +13,7 @@
 🎉 Danh hiệu Sinh viên 5 tốt bao gồm ***5 tiêu chí***:
 -  ✅ [Đạo đức tốt.](#Đạo-đức-tốt:)
 -  🥇 Học tập tốt.
--  🏀 Thể lực tốt.
+-  🏀 Thể lực tốt.   Cao Hoài Tấn
 -  ❤️ Tình nguyện tốt.
 -  🤝 Hội nhập tốt
 
